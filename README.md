@@ -1,2 +1,2 @@
 # Prof.-An-nimo
-Avisos de Discord.
+quiubole banda :v 
